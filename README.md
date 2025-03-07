@@ -1,4 +1,4 @@
-## ![Image](https://github.com/user-attachments/assets/540b13a7-183d-45fa-80b4-9d7338c8e138)
+## ![Image](https://github.com/user-attachments/assets/2d8cff07-a28f-41cd-87fb-38abae4edbcb)
 
 <!--
 **27-jjay/27-jjay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
