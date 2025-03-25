@@ -1,4 +1,4 @@
-# [[ Good game well played 🖕 ]]
+# [[ I think my friends are cool ♥ ]]
 ## ![Image](https://github.com/user-attachments/assets/2d8cff07-a28f-41cd-87fb-38abae4edbcb)
 
 <!--
