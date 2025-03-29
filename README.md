@@ -1,5 +1,5 @@
-# [[ I think my friends are cool ♥ ]]
-## ![Image](https://github.com/user-attachments/assets/2d8cff07-a28f-41cd-87fb-38abae4edbcb)
+# [[ boy- ]]
+## ![Image](https://github.com/user-attachments/assets/08deed78-79ed-43bc-ae82-4edd50d59fd5)
 
 <!--
 **27-jjay/27-jjay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
