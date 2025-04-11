@@ -1,4 +1,4 @@
-# [[ ia april fools update i need u ]]
+# [[ i love my friends yall make me so happy ngl ]]
 ## ![Image](https://github.com/user-attachments/assets/68f4ed20-68ec-43d5-b3a5-d89dd21cbdd2)
 ## ![Image](https://github.com/user-attachments/assets/08deed78-79ed-43bc-ae82-4edd50d59fd5)
 
