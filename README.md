@@ -1,4 +1,4 @@
-# [[ i love my friends yall make me so happy ngl ]]
+# [[ nobody gets how much i love my friends nobody gets it nobody gets it dude i lobe you guys♥♥ ]]
 fucking PEAK by cal ![Image](https://github.com/user-attachments/assets/81754fab-2108-4793-84bc-e2c7d1effaf6)
 
 shitpost hell vv
