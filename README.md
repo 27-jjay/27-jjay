@@ -1,4 +1,4 @@
-# [[ nobody gets how much i love my friends nobody gets it nobody gets it dude i lobe you guys♥♥ ]]
+# [[ nobody gets hwo much i love my freinds nobody gets it nobody gets it dude ii lvoe you guys somuch♥♥ ]]
 fucking PEAK by cal ![Image](https://github.com/user-attachments/assets/81754fab-2108-4793-84bc-e2c7d1effaf6)
 
 shitpost hell vv
