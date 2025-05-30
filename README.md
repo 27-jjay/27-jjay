@@ -3,9 +3,7 @@
 
 fucking PEAK by cal ![Image](https://github.com/user-attachments/assets/81754fab-2108-4793-84bc-e2c7d1effaf6)
 
-shitpost hell vv
-## ![Image](https://github.com/user-attachments/assets/6f14c82e-7c7e-4456-b5f9-dbea5540ae4d)
-## ![Image](https://github.com/user-attachments/assets/aa29759f-83fe-493b-a312-9ce23d1da0ba)
+(shitpost hell)(https://shitposthell.straw.page)
 
 <!--
 **27-jjay/27-jjay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
