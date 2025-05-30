@@ -1,6 +1,6 @@
-# [[ nobody gets hwo much i love my freinds nobody gets it nobody gets it dude ii lvoe you guys somuch♥♥ ]]
-69☠☠😈😈 followers i've peaked ☠☠☠😂😂😂🤫🤫🔥🔥🗣🗣🗣🙏🙏on god deaduzz🤦‍♂️🤦‍♂️frfr ong ☠☠real shi type shi🙏🙏
---
+# [[ sory if i remove your tag im just cleaning my github ]]
+
+
 fucking PEAK by cal ![Image](https://github.com/user-attachments/assets/81754fab-2108-4793-84bc-e2c7d1effaf6)
 
 shitpost hell vv
