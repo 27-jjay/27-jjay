@@ -1,7 +1,6 @@
 # [[ sory if i remove your tag or unfollow im just cleaning my github ]]
 
-
-
+![r qwfr](https://github.com/user-attachments/assets/04213ae4-5651-4e5e-b0d7-e85312ab30c8)
 [shitpost hell](https://shitposthell.straw.page) , sign my [atabook](https://27j.atabook.org) or my [strawpage](https://27jay.straw.page) , my woke [pronouns page](https://pronouns.cc/@27jay)
 
 <!--
