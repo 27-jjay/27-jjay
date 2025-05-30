@@ -2,7 +2,7 @@
 
 ![r qwfr](https://github.com/user-attachments/assets/04213ae4-5651-4e5e-b0d7-e85312ab30c8)
 
-[shitpost hell](https://shitposthell.straw.page) , sign my [atabook](https://27j.atabook.org) or my [strawpage](https://27jay.straw.page) , my woke [pronouns page](https://pronouns.cc/@27jay)
+  [shitpost hell](https://shitposthell.straw.page) , sign my [atabook](https://27j.atabook.org) or my [strawpage](https://27jay.straw.page) , my woke [pronouns page](https://pronouns.cc/@27jay)
 
 <!--
 **27-jjay/27-jjay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
