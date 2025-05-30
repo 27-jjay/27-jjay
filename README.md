@@ -1,9 +1,8 @@
 # [[ sory if i remove your tag or unfollow im just cleaning my github ]]
 
 
-fucking PEAK by cal ![Image](https://github.com/user-attachments/assets/81754fab-2108-4793-84bc-e2c7d1effaf6)
 
-[shitpost hell](https://shitposthell.straw.page)
+[shitpost hell](https://shitposthell.straw.page) , sign my [atabook](https://27j.atabook.org) or my [strawpage](https://27jay.straw.page) , my woke [pronouns page](https://pronouns.cc/@27jay)
 
 <!--
 **27-jjay/27-jjay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
