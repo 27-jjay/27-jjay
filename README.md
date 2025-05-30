@@ -1,9 +1,25 @@
-# [[ sory if i remove your tag or unfollow im just cleaning my github ]]
+<div class="container">
+  <div class="content">
+    [[ sory if i remove your tag or unfollow im just cleaning my github ]]
 
-![r qwfr](https://github.com/user-attachments/assets/04213ae4-5651-4e5e-b0d7-e85312ab30c8)
+  ![r qwfr](https://github.com/user-attachments/assets/04213ae4-5651-4e5e-b0d7-e85312ab30c8)
 
   [shitpost hell](https://shitposthell.straw.page) , sign my [atabook](https://27j.atabook.org) or my [strawpage](https://27jay.straw.page) , my woke [pronouns page](https://pronouns.cc/@27jay)
+  </div>
+</div>
 
+<style>
+  .container {
+    display: table;
+    width: 100%;
+    height: 100%;
+  }
+  .container .content {
+    display: table-cell;
+    vertical-align: middle;
+    text-align: center;
+  }
+</style># 
 <!--
 **27-jjay/27-jjay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
