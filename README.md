@@ -1,5 +1,7 @@
 debate of the CENTURY 
 noin - 10 / ronkle - 9
+
+
 ![image](https://github.com/user-attachments/assets/b48b39f3-6311-4e16-a8ac-bd187a0faddc)
 
 
