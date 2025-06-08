@@ -1,8 +1,9 @@
 debate of the CENTURY 
 noin - 10 / ronkle - 9
 
+art by BEA THANK YOU SO MUCH I LOIVE THIS ❤❤❤❤❤❤❤💕💕💕💕💕💕
+![h9vf6p](https://github.com/user-attachments/assets/46f87a48-2364-406f-89e5-5557be7af887)
 
-![image](https://github.com/user-attachments/assets/b48b39f3-6311-4e16-a8ac-bd187a0faddc)
 
 
   [shitpost hell](https://shitposthell.straw.page) , sign my [atabook](https://27j.atabook.org) or my [strawpage](https://27jay.straw.page) , my woke [pronouns page](https://pronouns.cc/@27jay)
