@@ -1,5 +1,7 @@
 debate of the CENTURY 
-noin - 10 / ronkle - 9
+noin - 10 / ronkle - 9 
+
+aite now sign [my wall](https://walloftext.co/27j) 
 
 art by BEA THANK YOU SO MUCH I LOIVE THIS ❤❤❤❤❤❤❤💕💕💕💕💕💕
 ![h9vf6p](https://github.com/user-attachments/assets/46f87a48-2364-406f-89e5-5557be7af887)
