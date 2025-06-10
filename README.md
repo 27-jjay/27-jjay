@@ -1,5 +1,5 @@
  debate of the CENTURY 
-## noin - 27 / ronkle - 17
+## noin - 27 / ronkle - 18
 
 aite now sign [my wall](https://walloftext.co/27j) 
 
