@@ -4,7 +4,7 @@
 aite now sign [my wall](https://walloftext.co/27j) 
 
 
-[shitpost hell](https://shitposthell.straw.page) , sign my [atabook](https://27j.atabook.org) or my [strawpage](https://27jay.straw.page) , my woke [pronouns page](https://pronouns.cc/@27jay)
+[shitpost hell](https://shitposthell.straw.page) , sign my [atabook](https://27j.atabook.org) or my [strawpage](https://27jay.straw.page) , my woke [pronouns page](https://pronouns.cc/@27jay) BE MY FRIEND W2I C+H NOW NO NEED TO ASK NOW NPWO NOW
 
 
 
