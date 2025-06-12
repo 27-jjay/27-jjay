@@ -7,7 +7,7 @@ aite now sign [my wall](https://walloftext.co/27j)
 [shitpost hell](https://shitposthell.straw.page) , sign my [atabook](https://27j.atabook.org) or my [strawpage](https://27jay.straw.page) , my woke [pronouns page](https://pronouns.cc/@27jay)
 
 
-yo i lowk need to shit
+
 ![image](https://github.com/user-attachments/assets/8fb0aa5b-e62d-43f3-9d12-dda38e86d191)
 
 
