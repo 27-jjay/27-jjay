@@ -1,4 +1,4 @@
-[![HitCount](https://hits.dwyl.com/27-jjay/27-jjay.svg?style=flat-square)](http://hits.dwyl.com/27-jjay/27-jjay)
+https://hits.dwyl.com/27-jjay/27-jjay.svg?style=flat-square)](http://hits.dwyl.com/27-jjay/27-jjay
 
 
 aite now sign [my wall](https://walloftext.co/27j) 
