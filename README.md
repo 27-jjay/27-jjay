@@ -1,5 +1,5 @@
- debate of the CENTURY 
-## noin - 28 / ronkle - 18
+https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2F27-jjay%2F27-jjay.json&style=flat&logoColor=21aa4a
+
 
 aite now sign [my wall](https://walloftext.co/27j) 
 
