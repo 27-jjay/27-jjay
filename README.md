@@ -16,6 +16,6 @@ sign
 
 <div align="center">
 
-![](https://github.com/user-attachments/assets/cf84e7c7-3caf-4f30-8dfb-2c0c06191fe2)
+![Image](https://github.com/user-attachments/assets/81955a21-f2cf-4195-9487-29413bf4d9a0)
 
 </div>
