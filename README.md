@@ -1,18 +1,5 @@
 <p align="center">
    ![](https://komarev.com/ghpvc/?username=27-jjay&color=blueviolet&label=hi+:3)
-
-
-   aite now sign [my wall](https://walloftext.co/27j) 
-
-
-   [ [shitpost hell](https://shitposthell.straw.page) - [atabook](https://27j.atabook.org) - [strawpage](https://27jay.straw.page) - [pronouns page](https://pronouns.cc/@27jay) ]
-
-
-
-
-   https://github.com/user-attachments/assets/5eb55ffc-41d2-43fd-afc5-fa3a74bc79f7
-
-   [@tallpaw](https://github.com/tallpaw)
 </p>
 
 <!--
