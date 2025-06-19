@@ -9,9 +9,10 @@ im not aligning this shit to middle i cant be arsed bro anyways sign [my wall](h
 
 
 
-https://github.com/user-attachments/assets/5eb55ffc-41d2-43fd-afc5-fa3a74bc79f7
+![](https://github.com/user-attachments/assets/cf84e7c7-3caf-4f30-8dfb-2c0c06191fe2)
 
-[@tallpaw](https://github.com/tallpaw)
+
+
 
 <!--
 **27-jjay/27-jjay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
