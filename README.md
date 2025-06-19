@@ -10,6 +10,7 @@ aite now sign [my wall](https://walloftext.co/27j)
 
 
 https://github.com/user-attachments/assets/5eb55ffc-41d2-43fd-afc5-fa3a74bc79f7
+[@tallpaw](https://github.com/tallpaw)
 
 <!--
 **27-jjay/27-jjay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
