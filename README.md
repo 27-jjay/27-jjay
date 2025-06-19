@@ -1,4 +1,4 @@
-
+![hi](https://komarev.com/ghpvc/?username=27-jjay&color=blueviolet&style=for-the-badge)
 
 
 aite now sign [my wall](https://walloftext.co/27j) 
