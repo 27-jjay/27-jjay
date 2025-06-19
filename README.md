@@ -8,8 +8,8 @@ aite now sign [my wall](https://walloftext.co/27j)
 
 
 
-![image](https://github.com/user-attachments/assets/8fb0aa5b-e62d-43f3-9d12-dda38e86d191)
 
+https://github.com/user-attachments/assets/5eb55ffc-41d2-43fd-afc5-fa3a74bc79f7
 
 <!--
 **27-jjay/27-jjay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
