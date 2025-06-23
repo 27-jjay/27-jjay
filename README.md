@@ -16,8 +16,7 @@ sign
 
 <div align="center">
 
-![3dgifmaker74861](https://github.com/user-attachments/assets/05009f0f-5af9-49d0-93fc-0b991c177144)
-
+[![Image](https://github.com/user-attachments/assets/4458e209-750d-4a3a-9f63-b1a6694ab443)](https://rentry.co/aIone-traveler)
 
 </div>
 
