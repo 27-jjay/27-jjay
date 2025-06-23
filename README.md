@@ -25,7 +25,7 @@ sign
 
 jay: is sped 
 
-jay: forgets hetr fucking email
+jay: forgets hetr fuckign email
 
 
 </div>
