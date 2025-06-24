@@ -22,9 +22,7 @@ sign
 
 <div align="center">
 
-jay: is sped 
-
-jay: forgets hetr fuckign email
+cuddle hide whisper to interact ^w^
 
 
 </div>
