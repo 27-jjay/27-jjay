@@ -1,5 +1,11 @@
 <div align="center">
 
+# read this [document](https://docs.google.com/document/d/1SjICRxYDbm8zmDUGY2ld23T1fD3Gcnj7PS-03HVCEyg/edit?usp=sharing) please
+
+</div>
+
+<div align="center">
+
 ![](https://komarev.com/ghpvc/?username=27-jjay&color=brightgreen&label=-^.^-)
 
 </div>
