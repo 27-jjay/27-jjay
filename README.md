@@ -6,7 +6,7 @@
 
 <div align="center">
 
-# ![Image](https://files.catbox.moe/x77v7o.png)
+
 
 </div>
 
