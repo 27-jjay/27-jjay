@@ -1,6 +1,6 @@
 <div align="center"> 
  
-"This whole this has been one big nothing burger and it lowk wasnt worth it. I was pissed of and acted out of impulse. Im sorry jay :(" no the fuck it wasnt vex, rape threats arent nothing, accusing me of saying racial slurs, ableist slurs, anti semitic things then calling me what you said III called you isn't One Big Nothing Burger, Okay? you're not brushing this shit off you genuinely made me uncomfortable and made me feel unsafe, we're not acting like this is just a little slip-up
+"This whole this has been one big nothing burger and it lowk wasnt worth it. I was pissed of and acted out of impulse. Im sorry jay :(" no the fuck it wasnt vex, rape threats arent nothing, accusing me of saying racial slurs, ableist slurs, anti semitic things then calling me what you said III called you isn't One Big Nothing Burger, Okay? you're not brushing this shit off you genuinely made me uncomfortable and made me feel unsafe, we're not acting like this is just a little slip-up, you didnt address ANYTHING important in the doc you made
  
  # read this [document](https://docs.google.com/document/d/1SjICRxYDbm8zmDUGY2ld23T1fD3Gcnj7PS-03HVCEyg/edit?usp=sharing) please
 
