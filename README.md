@@ -1,5 +1,7 @@
-<div align="center">
+<div align="center"> 
+ 
 @egobwoarder on github is a pussy
+ 
  # read this [document](https://docs.google.com/document/d/1SjICRxYDbm8zmDUGY2ld23T1fD3Gcnj7PS-03HVCEyg/edit?usp=sharing) please
 
 </div>
