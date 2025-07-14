@@ -1,6 +1,6 @@
 <div align="center"> 
  
-@egobwoarder on github is a pussy
+"This whole this has been one big nothing burger and it lowk wasnt worth it. I was pissed of and acted out of impulse. Im sorry jay :(" No the fuck it wasnt vex rape threats arent nothing accusing me of saying racial slurs, ableist slurs, anti semitic things isn't One Big Nothing Burger. you're not brushing this shit off you genuinely made me uncomfortable and made me feel unsafe
  
  # read this [document](https://docs.google.com/document/d/1SjICRxYDbm8zmDUGY2ld23T1fD3Gcnj7PS-03HVCEyg/edit?usp=sharing) please
 
