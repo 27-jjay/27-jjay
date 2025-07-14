@@ -1,6 +1,5 @@
 <div align="center">
 
-leave me the FUCK alone vex you're disgusting i want nothing to do with you stop harassing me
  # read this [document](https://docs.google.com/document/d/1SjICRxYDbm8zmDUGY2ld23T1fD3Gcnj7PS-03HVCEyg/edit?usp=sharing) please
 
 </div>
