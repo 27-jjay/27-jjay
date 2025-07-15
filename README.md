@@ -1,4 +1,6 @@
 <div align="center"> 
+ Hi vex can you Unblock me on discord? Hi vex can you Unblock me on discord?
+
  
 "This whole thing has been one big nothing burger and it lowk wasnt worth it. I was pissed of and acted out of impulse. Im sorry jay :(" no the fuck it wasnt vex, rape threats arent nothing, accusing me of saying racial slurs, ableist slurs, anti semitic things then calling me what you said i called you isn't One Big Nothing Burger, Okay? even if you acted out of impulse, the things you did aren't a joke and you're not brushing this shit off. you're gonna take accountability if you wanna fix things. you genuinely made me uncomfortable and made me feel unsafe, we're not acting like this is just a little slip-up, you didnt address ANYTHING important in the doc you made. if you want to genuinely sort things out, talk to me on discord (27._jay), admit to the shit you did, and we'll figure it out from there 
  
