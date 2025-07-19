@@ -1,18 +1,7 @@
 <div align="center">
 
-<img width="455" height="166" alt="467280270-f373f18c-9d1b-4a08-a55e-56c3b9b57a8e" src="https://github.com/user-attachments/assets/ef93d9e3-4c6a-4331-9aad-8d09bc7878cf" />
+https://github.com/user-attachments/assets/3fce40ac-2c06-4ced-97a3-e0356d2d32e3
 
-</div> 
-
-<div align="center">
-
-<img width="455" height="166" alt="image" src="https://github.com/user-attachments/assets/6ea34893-d9ab-4f2a-a92b-6f66cf62f03c" />
-
-</div> 
-
-<div align="center">
-
-<img width="455" height="166" alt="coolkid" src="https://github.com/user-attachments/assets/a7e1d3ac-6616-4ae3-8c05-ba774e302365" />
 
 </div>
 
