@@ -1,9 +1,3 @@
-<div align="center">
-
-https://github.com/user-attachments/assets/3fce40ac-2c06-4ced-97a3-e0356d2d32e3
-
-
-</div>
 
 <div align="center">
 
