@@ -1,7 +1,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=27-jjay&color=brightgreen&label=-^.^-)
+![](https://komarev.com/ghpvc/?username=27-jjay&color=247a22&label=-^.^-)
 
 </div>
 
