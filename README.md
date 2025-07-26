@@ -2,7 +2,7 @@
   
 ez ez ez 
   
-<img width="500" height="422" alt="image" src="https://github.com/user-attachments/assets/750a5a25-3465-4b91-85f2-4f7a5925a348" />
+<img width="679" height="470" alt="image" src="https://github.com/user-attachments/assets/aa8c83d1-983d-4e96-a3d8-32c3e31006ff" />
 
 </div>
 
