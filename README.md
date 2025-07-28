@@ -1,10 +1,4 @@
-<div align="center">
-  
-someone count the +'s and send them to me
-  
-<img width="679" height="470" alt="image" src="https://github.com/user-attachments/assets/aa8c83d1-983d-4e96-a3d8-32c3e31006ff" />
 
-</div>
 
 <div align="center">
 
