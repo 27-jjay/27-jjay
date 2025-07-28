@@ -24,7 +24,9 @@ $\textsf{\color{#2e611f}{ sign my}    }$
 
 <div align="center">
 
- ㅤㅤ  [![Image](https://github.com/user-attachments/assets/4458e209-750d-4a3a-9f63-b1a6694ab443)](https://rentry.co/aIone-traveler)
+ ㅤㅤ  [![3dgifmaker23795](https://github.com/user-attachments/assets/109d05c6-2380-40e0-b0eb-ec699de2d30c)](https://rentry.co/aIone-traveler)
+
+
 
 </div>
 
