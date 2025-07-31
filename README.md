@@ -20,15 +20,12 @@ $\textsf{\color{#2e611f}{ sign my}    }$
 
  ㅤㅤ  [![3dgifmaker23795](https://github.com/user-attachments/assets/109d05c6-2380-40e0-b0eb-ec699de2d30c)](https://rentry.co/aIone-traveler)
 
-
-
 </div>
 
 
 <div align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31oyzmmo2vi5psgk7vhxm3g5x32e&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
-
 
 </div>
 
