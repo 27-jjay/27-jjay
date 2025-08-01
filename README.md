@@ -1,4 +1,9 @@
+<div align="center">
+  
+i cant even count them anymore bro
+<img width="967" height="581" alt="image" src="https://github.com/user-attachments/assets/054d9d4b-96ca-40d8-a710-0348adeecfba" />
 
+</div>
 
 <div align="center">
 
