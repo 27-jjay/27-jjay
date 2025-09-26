@@ -1,3 +1,5 @@
+rus+eng , she/they
+
 STOP FOLLOWING ME GO FOLLOW MY GOAT [@tallpaw](https://github.com/tallpaw) !!!!!!!!
 
 Cause she #needs them follows
