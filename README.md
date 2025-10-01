@@ -1,8 +1,8 @@
 rus+eng , she/they , [sign ata](https://27jay.atabook.org)
 
-STOP FOLLOWING ME GO FOLLOW MY GOAT [@tallpaw](https://github.com/tallpaw) !!!!!!!!
+im usually on russian servers and not very active 
 
-Cause she #needs them follows
+STOP FOLLOWING ME GO FOLLOW MY GOAT [@tallpaw](https://github.com/tallpaw) !!!!!!!!
 
 my discord is 27._jay if u wanna talk abt smth or add me
 
