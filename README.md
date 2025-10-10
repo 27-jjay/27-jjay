@@ -1,4 +1,4 @@
-rus+eng , she/they , [sign ata](https://27jay.atabook.org) , [rentry](https://rentry.co/chemIab)
+rus+eng , she/they or any , [sign ata](https://27jay.atabook.org) , [rentry](https://rentry.co/chemIab)
 
 im usually on russian servers and not very active 
 
