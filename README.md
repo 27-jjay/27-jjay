@@ -1,10 +1,6 @@
-rus+eng , she/they or any , [sign ata](https://27jay.atabook.org) , [rentry](https://rentry.co/chemIab)
+rus+eng , she/they or any , [sign ata](https://27jay.atabook.org) , [rentry](https://rentry.co/chemIab) , [prns cc](https://pronouns.cc/@27jay)
 
-im usually on russian servers and not very active 
-
-STOP FOLLOWING ME GO FOLLOW MY GOAT [@tallpaw](https://github.com/tallpaw) !!!!!!!!
-
-my discord is 27._jay if u wanna talk abt smth or add me
+i'm usually on russian servers, and not very active. i'm reclusive and i don't speak to many people, i don't like interacting with new people, nothing personal 👍
 
 
 
