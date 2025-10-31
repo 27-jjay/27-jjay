@@ -1,6 +1,6 @@
 rus+eng
 
-i'm usually on russian servers, and not very active. i'm reclusive and i don't speak to many people, i don't like interacting with new people, nothing personal 👍 unless you wanna talk about deep sea creatures with me. then please interact 🧡
+i'm usually on russian servers, and not very active. i'm reclusive and i don't speak to many people, i'm fairly focused on life right now, and i don't like interacting with new people, nothing personal. 👍 unless you wanna talk about deep sea creatures with me. then please interact 🧡
 
 
 
